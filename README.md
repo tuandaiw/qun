@@ -3,6 +3,10 @@
 
 请将本地址记录下来或加入书签，防止失联！！！
 
+已经连接VPN的难友，请点击下面的链接登记自己的邮箱地址，当团贷网的维权信息发布通道发生重大变化时将邮件通知您。
+
+https://docs.google.com/forms/d/1cSf3ff4f-3NGHZEdWEKyoZZCnjtH0LQRsIl9Q086i78/viewform?edit_requested=true&fbzx=3879674383508209826
+
 # 土豆下载
 
 新版Potato 官方下载地址  5.26最新验证，链接全部有效
