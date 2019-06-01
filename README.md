@@ -7,6 +7,14 @@
 
 https://docs.google.com/forms/d/1cSf3ff4f-3NGHZEdWEKyoZZCnjtH0LQRsIl9Q086i78
 
+
+# 万人土豆大群
+
+
+**红旗万人核心群**  https://pt.im/joinchat/a7DEsFs8ZQTUe_J1AtaPuw  
+
+老干妈很下饭万人核心群  https://pt.im/joinchat/t9kCgf8eZy8QV3Xt8Q6FFg
+
 # 土豆下载
 
 新版Potato 官方下载地址  5.26最新验证，链接全部有效
@@ -15,12 +23,6 @@ window版本  https://download.ptcloud.info/win/PotatoInstaller.zip
 
 安卓版本   https://download.ptcloud.info/android/potato.apk
 
-# 万人土豆大群
-
-
-**红旗万人核心群**  https://pt.im/joinchat/a7DEsFs8ZQTUe_J1AtaPuw  
-
-老干妈很下饭万人核心群  https://pt.im/joinchat/t9kCgf8eZy8QV3Xt8Q6FFg
 
 
 # 地方群
