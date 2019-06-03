@@ -1,7 +1,8 @@
 
 |||
 |-|-|
-|【2019年6月2日】当前主要信息大群 | **红旗万人核心群** |
+|【2019年6月3日】当前主要信息大群 | **红旗万人核心群** |
+| 请预备加入 | **电报群** |
 
 请将本地址记录下来或加入书签，防止失联！！！
 
@@ -17,14 +18,7 @@ https://docs.google.com/forms/d/1cSf3ff4f-3NGHZEdWEKyoZZCnjtH0LQRsIl9Q086i78
 
 老干妈很下饭万人核心群  https://pt.im/joinchat/t9kCgf8eZy8QV3Xt8Q6FFg
 
-# 土豆下载
-
-新版Potato 官方下载地址  5.26最新验证，链接全部有效
-
-window版本  https://download.ptcloud.info/win/PotatoInstaller.zip
-
-安卓版本   https://download.ptcloud.info/android/potato.apk
-
+电报群 https://t.me/joinchat/McspgBbZuXDEMp5T8kyBBA
 
 
 # 地方群
